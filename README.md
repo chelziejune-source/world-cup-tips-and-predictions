@@ -1,6 +1,6 @@
 # World Cup Tips and Predictions: Who Could Shine on the Biggest Stage?
 
-The World Cup is the biggest stage in football, where star players, rising talents, and disciplined teams can create unforgettable moments. For Filipino fans, following match insights can make the tournament more exciting because it adds context beyond the final score. This documentation post shares **world cup tips and predictions** to help fans understand which players and teams could shine during the competition.
+The World Cup is the biggest stage in football, where star players, rising talents, and disciplined teams can create unforgettable moments. For Filipino fans, following match insights can make the tournament more exciting because it adds context beyond the final score. This documentation post shares **[world cup tips and predictions](https://fifaworldcupph.com/tips/)** to help fans understand which players and teams could shine during the competition.
 
 ## **Look at Team Form**
 
